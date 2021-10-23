@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @K4R1-T0B7 but you can just call me Toby.
-- 👀 I’m interested in Minecraft, Animal Crossing, Anime, and other video games and cartoons.
+- 👀 I’m interested in Minecraft, Animal Crossing, Anime, and other video games or cartoons.
 - 🌱 I’m currently learning Blooket hacks... thats it. i intend to learn more in the future.
 - 💞️ I’m looking to collaborate on Blooket hacks and maybe other video games if i can find interest in it.
 - 📫 You can reach me by messaging me on discord- @Kari or twitter @KitamaPlayz
